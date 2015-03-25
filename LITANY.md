@@ -8,7 +8,7 @@ Pursue the company of people who inspire and nourish you. Give back, pay forward
 
 Fear lives in the mind. To counter: consider where your attention is focused; shift thinking into the body, or shift perspective from macro to micro (or vice versa). Also: FAITH. 
 
-Whether your purpose is to disrupt or sustain, know your place. Whatever your relationship is with the people around you, you do not exist in isolation. You are always part of a system of interrelated parts. What do you bring to the table? Do you add or subtract?
+Whether your purpose is to disrupt or sustain, know your place. Whatever your relationship is with the people around you, you do not exist in isolation. You are always part of a system of interrelated parts. What do you bring to the table? Do you add or subtract? Do you lift others up or pull(/let) them down?
 
 Consider your faculties and talents as batteries— know when and how to recharge them. Say NO, so you can say yes to the more important things. Remember why you do the work. Return to your core "why?" regularly. Live the balance between intention and intuition. Let discipline guide you to your muse. 
 
